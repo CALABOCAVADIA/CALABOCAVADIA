@@ -9,7 +9,7 @@ Eu sou Felipe Bordenalli, o ICONICO PaiSolteiro.
 ![](https://i.imgur.com/nXwOH9t.gif)
 
 
-### E agora sem motivo aparente, vai ai a letra de CALA-BOCA VADIA de Rudies Flacko: ⛰️❄️🐺
+### E agora sem motivo aparente, vai ai a letra de CALA-BOCA VADIA de Rudies Flacko: 🤫🧏‍♂️
 
 -Quem que eles pensa que eu sou?
 
